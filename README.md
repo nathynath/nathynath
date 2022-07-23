@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @nathynath 
+- 👀 I’m interested in tidur, makan, berak
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+kontol
+--->
